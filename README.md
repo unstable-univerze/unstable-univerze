@@ -1,3 +1,3 @@
 hi guys
-  c+h freely,, yeah,, cudcomf❤  I'm really cool and you should int I promise I'm nice
+c+h freely always ! I'm really cool and you should int and befriend me I promise I'm nice
 almost always offtab,, w2i to get my attention
