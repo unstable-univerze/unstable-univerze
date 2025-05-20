@@ -2,4 +2,6 @@ hi guys
 
 c+h freely always ! I'm really cool and you should int and befriend me I promise I'm nice!! I'm so lonely
 
-almost always offtab,, w2i to get my attention
+almost always offtab,, w2i to get my attention. I'm chronically online.. i don't have a life
+
+
