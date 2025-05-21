@@ -6,5 +6,4 @@ c+h freely always ! I'm really cool and you should int and befriend me I promise
 
 almost always offtab,, w2i to get my attention
 
-
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=spread+love+everywhere!)](https://git.io/typing-svg)
+![hey](https://watermelon.crd.co/assets/images/gallery21/982517e1.gif?v=bc28efca)
